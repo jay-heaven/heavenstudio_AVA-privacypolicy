@@ -1,1 +1,0 @@
-# heavenstudio_privacypolicy
